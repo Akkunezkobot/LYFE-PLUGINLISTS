@@ -24,7 +24,7 @@
 </details>
 
 <details>
-<summary>📜 𝗜𝗡𝗗𝗘𝗫 📜 </summary>
+<summary>📜 ✧❥⃝⃕✯«⸙᭄ꪳʏs⋆⃡ɴᴇ͍⃕ᴢ⃕ᴋ͍ᴏ⃡✯» 📜 </summary>
 <p>
 
 ## INDEX
